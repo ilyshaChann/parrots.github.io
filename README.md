@@ -1,2 +1,2 @@
 # ilyshaChann.github.io
-Information site about parrots
+Информационный сайт про одних из самых удивительных птиц на земле - попугаях
